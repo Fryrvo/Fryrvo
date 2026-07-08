@@ -1,4 +1,4 @@
-## Hi there 👋
+> ## Hi there 👋
 > Hi i'm Fryrvo
 > <br>
 > i know as Musician i also do server stuff!
