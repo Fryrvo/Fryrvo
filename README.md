@@ -6,4 +6,4 @@
 > Pural / 2e
 >
 >
-> look at my old stuff at [FryrvoArchive](https://github.com/fryrvoarchive)
+> look at my other stuff at [FryrvoArchive](https://github.com/fryrvoarchive)
