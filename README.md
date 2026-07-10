@@ -1,7 +1,7 @@
 > ## Hi there 👋
 > Hi i'm Fryrvo
 > <br>
-> i know as Musician i also do server stuff!
+> i Mostly know as Musician i also do server stuff!
 > 
 > Pural / 2e
 >
