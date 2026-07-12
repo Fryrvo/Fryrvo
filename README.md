@@ -2,6 +2,8 @@
 > Hi i'm Fryrvo
 > <br>
 > i Mostly know as Musician i also do server stuff!
+>
+> i like rock (actually tho)
 > 
 > Pural / 2e
 >
