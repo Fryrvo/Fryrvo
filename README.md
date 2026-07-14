@@ -1,7 +1,7 @@
 > ## Hi there 👋
 > Hi i'm Fryrvo
 > <br>
-> i Mostly know as Musician i also do server stuff!
+> i Mostly known as Musician i also do server stuff!
 >
 > i like rock (actually tho)
 > 
