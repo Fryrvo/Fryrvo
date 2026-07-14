@@ -9,3 +9,4 @@
 >
 >
 > look at my other stuff at [FryrvoArchive](https://github.com/fryrvoarchive)
+> You may think that what i make is useless actually it super useless
