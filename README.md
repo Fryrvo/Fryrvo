@@ -5,7 +5,7 @@
 >
 > i like rock (actually tho)
 > 
-> Pural / 2e
+> Pural / twice exceptional
 >
 >
 > look at my other stuff at [FryrvoArchive](https://github.com/fryrvoarchive)
