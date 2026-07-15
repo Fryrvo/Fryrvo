@@ -3,7 +3,7 @@
 > <br>
 > i Mostly known as Musician i also do server stuff!
 >
-> i like rock (actually tho)
+> i like stone and ore they are so cool!
 > 
 > Pural / twice exceptional
 >
