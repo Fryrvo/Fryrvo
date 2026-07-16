@@ -1,11 +1,11 @@
 > ## Hi there
-> Hi i'm Fryrvo
+> **Hi i'm Fryrvo**
 > <br>
-> i Mostly known as Musician i also do server stuff!
+> **i Mostly known as Musician i also do server stuff!**
 > <br>
-> i like stone and ore they are so cool!
+> **i like stone and ore they are so cool!**
 > 
-> Pural / twice exceptional
+> ***Pural / twice exceptional***
 >
 >
 >
