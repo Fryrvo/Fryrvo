@@ -16,7 +16,6 @@
 >
 > Full index is [FryrvoPortal](https://github.com/FryrvoFox)
 > <br>
-> We were moving Stuff around just look around then if you really looking for sometimgs Here are Tings that We really want to show =)
+> We were moving Stuff around just look around then if you really looking for sometimgs Here are Tings that We really want to show
 > 
 >
-<a href="https://github.com/fryrvofox">       <img src="https://raw.githubusercontent.com/Fryrvo/Library/main/asset/Divider.png" alt="Discord" style="margin: 5px 10px;"></a>  
