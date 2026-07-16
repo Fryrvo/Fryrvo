@@ -1,4 +1,4 @@
-> ## Hi there 👋
+> ## Hi there
 > Hi i'm Fryrvo
 > <br>
 > i Mostly known as Musician i also do server stuff!
@@ -11,7 +11,11 @@
 >
 > * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
 > * Tings about Minecraft Mod are At [Modwinth](https://github.com/Modwinth)
->   <br>
-> Full index is [Here](https://github.com/FryrvoFox)
 > 
-> You may think that what i make is useless actually it super useless
+> "You may think that what i make is useless actually it super useless"
+>
+> Full index is [Here](https://github.com/FryrvoFox)
+> <br>
+> We were moving Stuff around just look around then if you really looking for sometimgs Here are Tings that We really want to show =)
+> 
+>
