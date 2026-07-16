@@ -2,12 +2,15 @@
 > Hi i'm Fryrvo
 > <br>
 > i Mostly known as Musician i also do server stuff!
->
+> <br>
 > i like stone and ore they are so cool!
 > 
 > Pural / twice exceptional
 >
 >
-> look at my other stuff at [FryrvoArchive](https://github.com/fryrvoarchive)
-> <br>
+>
+> * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
+> * Tings about Minecraft Mod are At [Modwinth](https://github.com/Modwinth)
+>
+> 
 > You may think that what i make is useless actually it super useless
