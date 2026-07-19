@@ -14,7 +14,7 @@
 > 
 > "You may think that what i make is useless actually it super useless"
 >
-> Full index is [FryrvoPortal](https://github.com/FryrvoFox)
+> Full index is [FryrvoPortal](https://github.com/Fryrvosystem)
 > <br>
 > 
 >
