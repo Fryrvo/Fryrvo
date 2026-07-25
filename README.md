@@ -8,7 +8,7 @@
 > **Pural / twice exceptional**
 >
 >
->
+<!--
 > * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
 > * Tings about Minecraft Mod are At [Modwinth](https://github.com/Modwinth)
 > 
