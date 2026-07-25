@@ -5,7 +5,7 @@
 > <br>
 > **i like stone and ore they are so cool!**
 > 
-> **Pural / twice exceptional**
+> **Pural / 2e**
 >
 >
 <!--
