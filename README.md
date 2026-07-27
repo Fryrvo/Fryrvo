@@ -2,12 +2,18 @@
 > **Hi i'm Fryrvo**
 > <br>
 > **i Mostly known as Musician i also do server stuff!**
+
+> [!NOTE]
+> **i like stone they are so cool!**
 > <br>
-> **i like stone and ore they are so cool!**
-> 
+> <sup>i like to said i like Rock but people assume that i like Rock+Music =( </sup>
+>
 > **Pural / 2e**
->
->
+
+> Oh and don't worries about my Contribution talbe i don't really do anytings useful
+
+
+
 <!--
 > * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
 > * Tings about Minecraft Mod are At [Modwinth](https://github.com/Modwinth)
