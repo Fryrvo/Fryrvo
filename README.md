@@ -11,7 +11,7 @@
 > **Pural / 2e**
 
 > Oh and don't worries about my Contribution talbe i don't really do anytings useful
-
+> * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
 
 
 <!--
