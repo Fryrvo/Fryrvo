@@ -10,9 +10,9 @@
 >
 > **Pural / 2e**
 
-> Oh and don't worries about my Contribution talbe i don't really do anytings useful
+> Oh and don't worries about my Contribution talbe i don't really do anytings useful i just do stupid stuff
 > * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
-
+> * Minecraft stuff at [Modwinth Studio](https://github.com/Modwinth)
 
 <!--
 > * Look at my other stuff At [FryrvoArchive](https://github.com/fryrvoarchive)
