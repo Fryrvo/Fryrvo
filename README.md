@@ -2,6 +2,9 @@
 > **Hi i'm Fryrvo**
 > <br>
 > **i Mostly known as Musician i also do server stuff!**
+>
+> You can look at my other stuff at [Fryrvo.com](https://fryrvo.com/)
+
 <!--
 > [!NOTE]
 > **i like stone they are so cool!**
