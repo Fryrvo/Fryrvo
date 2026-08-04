@@ -1,4 +1,3 @@
-> ## Hi there
 > **Hi i'm Fryrvo**
 > <br>
 > **i Mostly known as Musician i also do server stuff!**
