@@ -1,6 +1,7 @@
 > **Hi i'm Fryrvo**
 > <br>
 > **i Mostly known as Musician i also do server stuff!**
+> <!--
 >
 > You can stalk me at **[Fryrvo.com](https://fryrvo.com/)**
 
